@@ -1,0 +1,1 @@
+If you are looking for media files to use in press releases or other publications, please contact CloudOps directly.  These files are not high enough resolution.
